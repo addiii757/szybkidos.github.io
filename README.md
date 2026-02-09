@@ -1,0 +1,1 @@
+# szybkidos.github.io
